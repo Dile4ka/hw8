@@ -1,2 +1,2 @@
 # hw8
-http://project684737.tilda.ws
+http://dilkinkursach.tilda.ws
